@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zacharytaylor-FS
-- 👀 I’m interested in Web Design and Development
-- 🌱 I’m actively taken Google IT Support Professional Certification 
+- 👀 Aspiring Web Developmer
+- 🌱 Google IT Support Graduate 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me zt070511@outlook.com
 
